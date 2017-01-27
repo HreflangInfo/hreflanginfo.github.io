@@ -1,4 +1,4 @@
-## International SEO: Global Strategy with Languages and Locations
+## Hreflang.Info
 
 ### Language Website Expansion
 
